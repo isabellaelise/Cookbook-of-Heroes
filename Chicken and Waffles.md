@@ -1,5 +1,7 @@
 # Chicken and Waffles
 
+## Ingredients
+
 *For the Fried Chicken:*
 - **1000g** Chicken breast cut thin
 - **1 shallow soup bowl** spiced flour
@@ -19,6 +21,8 @@
 - **2** eggs
 - **1 ½** cup milk
 - **125 g** butter (melted)  
+
+## Procedure
 
 If you have the time, soak chicken in a buttermilk bath for at least a couple hours (if not overnight). Not necessary but helps. Prepare yourself a frying pot, preferably a soup pot with a narrow bottom and deep sides. Fill with oil suitable for frying and preheat the oil to about 185 C. I personally use a canola base, then “spice” it by mixing in just a bit of peanut oil, sesame oil, and coconut oil. The trick to good fried food is the oil. Plain/bad oil = plain/bad flavor.
 
