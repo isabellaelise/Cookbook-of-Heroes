@@ -11,8 +11,8 @@
 ## Procedure
 
 Translation of Oscar's official recipe:
-1.Put the flour in a bowl and add the water, mixing little by little until the dough has a smooth texture, add the butter and salt and continue kneading. The dough is ready when you can form a ball and it does not stick to your hand.
-2.Make balls of the preferred size (BN: this amount we usually turn into 2 arepas). For each arepa, make two flat disks and sandwich the cheese between them, forming a solid pancake. Seal edges well and let rest.
+1. Put the flour in a bowl and add the water, mixing little by little until the dough has a smooth texture, add the butter and salt and continue kneading. The dough is ready when you can form a ball and it does not stick to your hand.
+2. Make balls of the preferred size (BN: this amount we usually turn into 2 arepas). For each arepa, make two flat disks and sandwich the cheese between them, forming a solid pancake. Seal edges well and let rest.
 4. When all the "pastries" are finished, they are put to roast on a hot and greased surface. They are left about 15 minutes until they are golden and crisp. Turned over to roast both sides.
 5. Serve hot and accompanied by a little more butter on top and a little more salt. Or fill them to taste.
 
