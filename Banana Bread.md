@@ -4,7 +4,8 @@
 ## Ingredient
 
 - **2 1/4 cups** All-purpose flour
-- **1 cup** Sugar
+- **1/2 cup** White sugar
+- **1/2 cup** Brown sugar
 - **1/2 packet** vanilla sugar (or 1 tsp extract, if you have it)
 - **1 tsp** baking soda
 - **2 tsp** salt
