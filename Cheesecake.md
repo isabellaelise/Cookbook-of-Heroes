@@ -20,4 +20,4 @@ First make your Cookie Crumb Boden of choice. I recommend those Biscoff cookies 
 
 Next, mix together flour, baking powder, salt, and butter. Then throw everything into a blender. Blend that shit and then pour into your prepared crusts. Bake 40-45 min.
 
-You can add a bit of lemon to the mix if that's what does it for you, or top with creamcheese loosened with milk and decorated with fruit. 
+You can add a bit of lemon to the mix if that's what does it for you, or top with cream cheese loosened with milk and decorate with fruit. 
