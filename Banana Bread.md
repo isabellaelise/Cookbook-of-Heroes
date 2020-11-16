@@ -17,4 +17,4 @@
 
 Preheat oven to 160 C. Prepare a loaf pan.
 
-Set aside about 1/4 to 1/2 of the melted butter. Then, in two separate bowls, mix dry ingredients and wet ingredients, being sure to whip the wet ingredients until and airy texture is achieved. Gently fold the wet stuff into the dry stuff, careful not to over mix. Spread into the prepared pan. Bake roughly 1 hour, taking it out at around 40 mins to pour over the conserved butter. 
+Set aside about 1/4 to 1/2 of the melted butter. Then, in two separate bowls, mix dry ingredients and wet ingredients, being sure to whip the wet ingredients until airy texture is achieved. Gently fold the wet stuff into the dry stuff, careful not to over mix. Spread into the prepared pan. Bake roughly 1 hour, taking it out at around 40 mins to pour over the conserved butter. 
